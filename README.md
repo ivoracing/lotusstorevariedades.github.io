@@ -1,1 +1,0 @@
-# lotusstorevariedades.github.io
